@@ -1,4 +1,4 @@
-# Danube_Thoughts
+# Danube Thoughts
 
 ## Description
 This song(DanubeThoughts) captures all the moments when you are alone. This song aims to help you relax and enter your thoughts deeply using simple lofi beats. It introduces a catchy beat in the beginning to grab your attention and tries its best to help get into the flow state with piano chords. Throughout the song, we also have a drum and bass background to help retain your attention. 
